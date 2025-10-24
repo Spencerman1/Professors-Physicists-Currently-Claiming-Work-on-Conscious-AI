@@ -1,0 +1,2 @@
+# -Professors-Physicists-Currently-Claiming-Work-on-Conscious-AI
+there’s a noticeable resurgence of senior physicists, philosophers, and technologists re-entering the field with bold claims about conscious AI, new physics, and post-quantum frameworks. Many are blending decades of foundational work with emerging tech narratives, often positioning themselves as architects of a deeper, more metaphysical.
